@@ -21,6 +21,7 @@ Russian soldiers could apply through me to work as Transit drivers in the City o
 I think Bosnian women would be Great at daycare. Then kindergarden, Then grade school. then high school. I am developing curriculim for children where they are not disabused or so harshly gateway`d
 I think Russian women should work at small scale production of canola plants in what are now the many empty buildings in Winnipeg. The purchase of inside growing lights and other materials would inconvenience organized crime in their pursuit of illegal cannabis production. I would like to partner with engineers to produce security hardware and software for the women we employ and for our residences. Long range goal is to m a y b e have legal Russian Consular Divisions for all of the Canola Plant production facilities paying m a y b e Russian taxes. I would like to partner with legal to direct these activities
 - 📫 How to reach me ... wh4440771@gmail.com
+- e-transfers despeartely needed
 
 <!---
 CIAopp/CIAopp is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
